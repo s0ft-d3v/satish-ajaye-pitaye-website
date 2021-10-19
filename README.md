@@ -1,1 +1,0 @@
-# satish-ajaye-pitaye-website
